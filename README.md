@@ -1,4 +1,4 @@
-[THU 张颢，4个故事]（https://www.bilibili.com/video/av77340978/）   
+[THU 张颢，4个故事](https://www.bilibili.com/video/av77340978/)  
 ```
 任何时候都不要放弃希望。   
 当身处逆境时，持续地努力一定会有回报。   
